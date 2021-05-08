@@ -1,0 +1,1 @@
+Ingredients needed are mangoes , milk , ice , and blender jar .
